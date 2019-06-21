@@ -1,0 +1,2 @@
+# admin.epicgamer.org
+Kontol
